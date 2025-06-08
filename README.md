@@ -20,3 +20,5 @@ WEBフロントエンド開発が好きで、個人開発プロダクトもい�
 
 ## 📫 Contact & Links
 - X (Twitter): [ReN](https://x.com/ReN_12_30)
+- TikTok: [ReN](https://www.tiktok.com/@ren_221230)
+- Wantedly: [ReN](https://www.wantedly.com/id/ren_h1230)
